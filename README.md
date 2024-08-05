@@ -8,7 +8,7 @@
   
 - 💞️ I’m looking to collaborate on: Exciting projects related to data analytics, machine learning, and AI. If you have a project or idea where my skills could be useful, let’s connect!
   
-- 📫 How to reach me: You can reach me via [Email](mailto:sneha.jadhav2403@gmail.com) or connect with me on [LinkedIn](www.linkedin.com/in/snehajadhav76).
+- 📫 How to reach me: You can reach me via [Email](mailto:sneha.jadhav2403@gmail.com) or connect with me on [LinkedIn](https://www.linkedin.com/in/snehajadhav76).
   
 - ⚡ Fun fact: Along with my interest in AI and machine learning, I also enjoy painting and digital art.
   
